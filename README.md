@@ -1,4 +1,4 @@
 # hello-world
 getting started with GitHub
 
-fiquei com pena de apagar, então vou deixar aqui mesmo
+fala Lucas, vai ser uma puta nostalgia quando você voltar aqui
